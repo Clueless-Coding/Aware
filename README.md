@@ -1,1 +1,1 @@
-![Alt Text](https://tenor.com/view/kanye-jumpscare-kanye-jumpscare-gif-22615986)
+![Alt Text](https://c.tenor.com/4YiJiTv6HxYAAAAd/kanye-jumpscare.gif)
